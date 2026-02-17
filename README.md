@@ -3,4 +3,4 @@
 
 <img width="498" height="292" alt="image" src="https://github.com/user-attachments/assets/72b1de27-49ae-458e-bf0c-9065edcb89fe" />
 https://www.tumblr.com/amaaruu/798301925556797440/blackbird-singing-in-the-dead-of-night?source=share
-what my black mask goro is referencing btw
+what my black mask goro is referencing btwI LOVE THIS ONE.FR
